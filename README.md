@@ -2,5 +2,5 @@
 
 ## 📖 About me
 
-* 💻 I’m currently working on @BladeMC
-* 📱 I’m currently on the BladeMC Team
+* 💻 I’m currently working on @???
+* 📱 I’m currently on the ??? Team
