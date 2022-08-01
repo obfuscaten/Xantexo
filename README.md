@@ -2,5 +2,5 @@
 
 ## 📖 About me
 
-* 💻 I’m currently working on @???
-* 📱 I’m currently on the ??? Team
+* 💻 I’m currently working on @Venedus
+* 📱 I’m currently on the Venedus Team
